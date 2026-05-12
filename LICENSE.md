@@ -1,4 +1,4 @@
-#  
+#  oil empire advanced Script is the best oil empire Script, featuring infinite resources and anti-ban. Safe and powerful for all your needs.
 
 
 
